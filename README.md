@@ -1,2 +1,2 @@
 ### Hi there 👋
-💬 Find out more about me at [my website](https://yusefouda.com)!
+💬 Find out more about me at [LinkedIn](https://linkedin.com/in/yusefouda)!
